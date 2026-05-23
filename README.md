@@ -1,0 +1,1 @@
+# Modelo-Bayesiano-para-delitos-sexuales-en-menores-en-Bogot-D.-C.-2012-2022-
